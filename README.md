@@ -6,3 +6,4 @@ I’m currently pursuing a master’s degree in Human-Centered Artificial Intell
 
 
 ![Untitled video - Made with Clipchamp (1)](https://github.com/user-attachments/assets/ff051b6d-d76d-472d-b433-faffce1df9cf)
+![trig-vid](https://github.com/user-attachments/assets/b6103209-90ea-40c1-b8b1-7f260f4ed06c)
